@@ -19,3 +19,6 @@ The child within me was hoping that I did greeted, but the other part just did n
 What if opening up to someone who broke your trust is a sign of weakness? Maybe it’s just me, lost in my own world.
 
 Maybe one day, I'll have the chance to say hi to her again, not because of any lingering feelings, but simply because we're all human.
+
+
+![[Pasted image 20240923002725.png]]
