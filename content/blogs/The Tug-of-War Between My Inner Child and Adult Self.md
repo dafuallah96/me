@@ -12,7 +12,7 @@ After the children's session ended, it was our turn to stand up and greet others
 
 When the service ended, W and I left the church, and I thought to myself, why is it so hard to greet someone I liked, and maybe still do like, and just be friends? Trust me, the guilt level was so high. Trying to be myself while walking.
 
- I can't deny that A broke my trust when I asked her not to share things that I did not share with anyone else, which she did. Forgiveness? *Trust me, I am still trying.* 
+Earlier this year, A broke my trust when I asked her not to share things I had only told a few people I deeply trust, yet she did. *Forgiveness? Trust me, I’m trying.*
 
 The child within me was hoping that I did greeted, but the other part just did not allow that to happen. Sometimes I miss the simplicity of being a child, not weighed down by all these energy-draining small issues, you know? But at the same time, it's not worth putting effort into things that don't live up to what true friendship should be
 
