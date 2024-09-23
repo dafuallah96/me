@@ -4,7 +4,7 @@ date: 2024-09-22
 ---
 Meeting someone you used to like or still like can bring a whirlwind of emotions: butterflies in your stomach, a racing heart and even avoiding eye contact. I experienced all of this today, during church service (*God, please do forgive me. I had a slightly hard time*).
 
-It’s ironic for me to act this way, as I usually don’t ignore people. Yet, today, when I did, it didn't feel right. It wasn’t like me at all. Now, my inner child keeps asking, *why did you ignore her?*
+It’s ironic of me to act this way, as I usually don’t ignore people. Yet, today, I did it and it didn't feel right. It wasn’t like me at all. Now, my inner child keeps asking, *why did you ignore her?*
 
 Right, I went too fast to the point. Today, as usual, I went to church and sat in my regular spot, saving a seat for W. Five minutes before the service was set to begin, 'A' and her sister walked by and sat down in the seats infront of me. I knew it was her, but I did not say hi.
 
