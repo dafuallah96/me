@@ -1,6 +1,8 @@
 ---
 title: The Marathon Havoc
 date: 2024-10-13
+tags:
+  - self
 ---
 
 > 90% of ultrarunning is mental, and the rest is in your head.  -- Ray Zahab

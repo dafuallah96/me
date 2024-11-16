@@ -1,6 +1,8 @@
 ---
 title: The Tug of War Between My Inner Child and Adult Self
 date: 2024-09-22
+tags:
+  - self
 ---
 Meeting someone you used to like or still like can bring a whirlwind of emotions: butterflies in your stomach, a racing heart and even avoiding eye contact. I experienced all of this today, during church service (*God, please do forgive me. I had a slightly hard time*).
 
